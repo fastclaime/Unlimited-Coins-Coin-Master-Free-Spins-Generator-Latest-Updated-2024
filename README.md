@@ -1,4 +1,4 @@
-# -Unlimited-Coins-..Coin-Master-Free-Spins-Generator-Latest-Updated-2024
+# Unlimited Coins Coin Master Free Spins Generator Latest Updated 2024
 
 [✅CLICK HERE TO GET NOW FREE!](https://freeforyou.xyz/coinmaster/)
 
